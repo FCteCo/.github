@@ -1,4 +1,4 @@
-# Follower Cybernetics (Technical & Engineering)
+# Follower Cybernetics (Engineering & Technical)
 
 <div dir="rtl">
   
